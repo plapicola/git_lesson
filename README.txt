@@ -1,3 +1,0 @@
-I'm making a note here
-huge success
-It's hard to overstate my satisfaction
